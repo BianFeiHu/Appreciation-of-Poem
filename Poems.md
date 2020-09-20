@@ -82,3 +82,16 @@
 *“有朵晚秋的小花，因温暖而变得枯黄。在火焰逝去的地方，用双手捧着灰烬。”* 
 
 很久以来我都不明白为什么如此喜欢这一句的意境，就像在最凌冽的寒风中瑟瑟发抖时看见了橘红色的火光。
+
+# 四、飞鸟集-泰戈尔
+>如果你因失去了太阳而流泪，那么你也将失去群星。  
+>If you shed tears when you miss the sun, you also miss the stars.  
+
+
+>你微微地笑着，不同我说什么话。而我觉得，为了这个，我已等待得久了。  
+>You smiled and talked to me of nothing and I felt that for this 
+I had been waiting long.
+>>这一句是我最喜欢的，总让我回想起与刘宜欣第一次相见的场景
+
+>群星不怕显得像萤火那样  
+>The stars are not afraid to appear like fireflies.
