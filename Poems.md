@@ -91,7 +91,8 @@
 >你微微地笑着，不同我说什么话。而我觉得，为了这个，我已等待得久了。  
 >You smiled and talked to me of nothing and I felt that for this 
 I had been waiting long.
->>这一句是我最喜欢的，总让我回想起与LYX第一次相见的场景
+>>这一句是我最喜欢的
+>>现在我只想念与赵恒煜初见的场景
 
 >群星不怕显得像萤火那样  
 >The stars are not afraid to appear like fireflies.
